@@ -1,5 +1,5 @@
 # pcs
 
-geeky pics for everyone. high-resolutions images for non-commercial use only.
+geeky pics for everyone. you can download high-resolutions images for non-commercial use only, including hand-out materials for conferences and meet-ups.
 
-## to suport new pictures, purchase t-shirts and posters from the [store](https://teespring.com/stores/pcs)
+## t-shirts and posters are available from this [store](https://teespring.com/stores/pcs). puchasing something is the best way to support new pictures.
